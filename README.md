@@ -4,11 +4,11 @@
 
 ---
 
-Night Minimap
-
-
 ## Features
 
 - CFX : [Click Here](https://forum.cfx.re/t/release-night-minimap-free/4767037)
 
+## DMCA Protection Certificate
+![image](https://cdn.discordapp.com/attachments/1045063739738705940/1045076045931499600/image.png)
 
+##### Copyright © 2022 Malibú Tech. All rights reserved.
